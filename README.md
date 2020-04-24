@@ -40,6 +40,10 @@
 
 优势：支持10台设备同时使用，不限带宽
 
+🌐⑧  InvisibleBrowsingVPN， 点击-> [官网地址](https://my.ibvpn.com/aff.php?aff=9111&page=plans)
+
+可以24小时免费试用
+
 ----
 
 项目地址： https://github.com/coderdreamworld/VVPPNN
