@@ -4,7 +4,7 @@
 
 优势：不记录日志，2048位加密超强隐私保护
 
-✅🌐② Express，点击-> [官网地址](https://www.linkev.com/zh-cn/order?a_fid=tizi_vpn&data1=VVPPNN)
+✅🌐② Express，点击-> [官网地址](https://www.xvbelink.com/zh-cn/order?a_fid=tizi_vpn&data1=VVPPNN)
 
 多年评为全球服务第一，除了贵没别的毛病，30天内无理由退款
 
